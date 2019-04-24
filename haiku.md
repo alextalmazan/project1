@@ -1,7 +1,7 @@
 Hello World
-childless clear river
-moving, nakedly, cruelly
-abandonments flee
+snidely epic odd
+bricklayers scream leerily
+ranting, grieving bear
 
 
 
